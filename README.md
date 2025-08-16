@@ -1,6 +1,6 @@
-- Call me Zaw // Shazzy.
-- Sonic Fandom [ Shadow Fan]
-- I’m looking to collaborate on Art!
+- Call me Shazzy.
+- Sonic Fandom [Shadow Fan!]
+- I’m looking to collaborate on Art!//commission open on discord!
 - How to reach me: pony town.
 
   
