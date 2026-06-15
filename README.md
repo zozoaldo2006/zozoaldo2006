@@ -1,7 +1,6 @@
-- Call me Shazzy.
-- Sonic Fandom [Shadow Fan!]
-- I’m looking to collaborate on Art!//commission open on discord!
-- How to reach me: pony town.
+- Call me Shazzy or Lancy.
+- Sonic Fandom [Shadow Fan!]im always in Sonic area.
+- I’m an artist and my commissions are open in discord!Just ask me.
 https://httpswwwinstagramcomshadz2006headgehogigs.straw.page
   
 
