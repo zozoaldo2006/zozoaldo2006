@@ -1,5 +1,5 @@
-- Call me Shazzy or Lancy.
-- Sonic Fandom [Shadow Fan!]im always in Sonic area.
+- Call me Shazzy or Shaowd
+- Sonic Fandom [Shadow Fan ]im always in Sonic area.
 - I’m an artist and my commissions are open in discord!Just ask me.
 https://httpswwwinstagramcomshadz2006headgehogigs.straw.page
   
