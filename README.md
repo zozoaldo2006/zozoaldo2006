@@ -1,6 +1,7 @@
-- Call me Shazzy or Shaowd
-- Sonic Fandom [Shadow Fan ]im always in Sonic area.
-- I’m an artist and my commissions are open in discord!Just ask me.
+- Call me Shazz or Shaowd
+- Sonic Fandom [Shadow Fan ] always in Sonic area.
+- I’m an artist and my commissions are open in discord!Just ask me. [might close it forever one day].
+
 https://httpswwwinstagramcomshadz2006headgehogigs.straw.page
   
 
